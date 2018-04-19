@@ -1,4 +1,4 @@
-There is always a spot!
+There's always a spot!
 
 ![IMG](https://i.imgur.com/JeFpQgA.png)
 
